@@ -7,6 +7,7 @@
 
 -Professora de Pensamento Computacional
 
+
 -Professora de Alfabetização
 
 ### Você pode entrar em contato comigo em📧
